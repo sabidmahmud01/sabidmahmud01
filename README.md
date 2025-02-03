@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am lost in life like anybody else
+- ⚡ Fun fact: I'm slowly being less lost in life if that makes sense
 
 <!---
 sabidmahmud01/sabidmahmud01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
