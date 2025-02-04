@@ -2,7 +2,7 @@
 - 👀 I’m interested in soccer, gaming
 - 🌱 I’m currently learning to meditate
 - 💞️ I’m looking to collaborate with new people
-- 📫 How to reach me: Facebook or Instagram 
+- 📫 How to reach me: Instagram is my go to social
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm slowly being less lost in life if that makes sense
 
