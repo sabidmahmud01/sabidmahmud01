@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with new people
 - 📫 How to reach me: Instagram is my go to social
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm slowly being less lost in life if that makes sense
+- ⚡ Fun fact: I love playing FPS games.
 
 <!---
 sabidmahmud01/sabidmahmud01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
